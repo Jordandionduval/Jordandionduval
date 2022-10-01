@@ -1,3 +1,3 @@
 Hi, I’m Jordan Dion-Duval
-- 3D Artist / Animator
+- Tech Artist / 3D Animator
 - Student at UQAT
