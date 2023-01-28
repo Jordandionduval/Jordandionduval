@@ -1,3 +1,3 @@
 Hi, I’m Jordan Dion-Duval
-- Tech Artist / Rigger
-- Student at UQAT
+- Rigger, Technical Artist & 3D Animator
+- Graduating at UQAT in video game development (Artist)
